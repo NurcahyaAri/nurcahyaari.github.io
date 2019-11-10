@@ -1,1 +1,0 @@
-# nurcahyaari.github.io
